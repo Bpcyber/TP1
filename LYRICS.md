@@ -72,7 +72,8 @@ Qu'on te dise, "Voilà tu fais plus partie de la mifa d'en bas"\
 C'est dingue mais c'est comme ça\
 Sache qu'ici-bas, plus qu'ailleurs, la survie est un combat\
 À base de coups bas, de coups de tonba\
-D'esquives, des "shta-pow!" de putains de stonbaLaisse pas traîner ton fils\
+D'esquives, des "shta-pow!" de putains de stonba\
+Laisse pas traîner ton fils\
 Si tu veux pas qu'il glisse\
 Qu'il te ramène du vice
 
@@ -87,4 +88,4 @@ Laisse pas traîner ton fils\
 Si tu ne veux pas qu'il glisse\
 Qu'il te ramène du vice\
 Laisse pas traîner ton fils\
-Si tu veux pas qu'il glisse\
+Si tu veux pas qu'il glisse
