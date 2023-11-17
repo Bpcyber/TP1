@@ -58,4 +58,13 @@ Qu'il te ramène du vice\
 Laisse pas traîner ton fils\
 Si tu veux pas qu'il glisse
 
+Que voulais-tu que ton fils apprenne dans la rue?\
+Quelles vertus croyais-tu qu'on y enseigne?\
+Mais t'as pas vu comment ça pue dehors\
+Mais comment ça sent la mort?\
+Quand tu respires ça, mec, t'es comme mort-né\
+Tu finis borné à force de tourner en rond\
+Ton cerveau te fait défaut, puis fait des bonds\
+Et c'est vraiment pas bon quand t'en perds le contrôle\
+Quand pour les yeux des autres, tu joues de mieux en mieux ton rôle
 
