@@ -68,3 +68,15 @@ Ton cerveau te fait défaut, puis fait des bonds\
 Et c'est vraiment pas bon quand t'en perds le contrôle\
 Quand pour les yeux des autres, tu joues de mieux en mieux ton rôle
 
+Non laisse pas traîner ton fils\
+Laisse pas traîner ton fils\
+Si tu ne veux pas qu'il glisse\
+Qu'il te ramène du vice\
+Laisse pas traîner ton fils\
+Si tu veux pas qu'il glisse
+
+Laisse pas traîner ton fils\
+Si tu ne veux pas qu'il glisse\
+Qu'il te ramène du vice\
+Laisse pas traîner ton fils\
+Si tu veux pas qu'il glisse\
