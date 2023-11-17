@@ -12,6 +12,11 @@ Mais pour les autres, c'est clair, ça s'ra pas facile\
 Faut pas s'voiler la face, il suffit pas d'vendre des kils\
 Faut tenir le terrain pour le lendemain\
 S'assurer que les siens aillent bien, éviter les coups de surin\
+Afin de garder son bien intactSon équipe compacte, soudée\
+Écoute de scanner pour garder le contact ou\
+Décider de bouger, éviter les zones rouges, et\
+Surtout jamais prendre de congé\
+
 
 
 Laisse pas traîner ton fils\
@@ -24,4 +29,5 @@ Putain, c'est en me disant "j'ai jamais demandé à t'avoir!"\
 C'est avec ces formules, trop saoulées, enfin faut croire\
 Que mon père a contribué à me lier avec la rue\
 J'ai eu l'illusion de trouver mieux, j'ai vu\
+
 
