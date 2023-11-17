@@ -25,4 +25,11 @@ Plus d'interdit, juste avoir les dents assez longues\
 Pour croquer la vie, profiter de tout ce qui tombe\
 La rue a su me prendre car elle me faisait confiance\
 Chose qui avec mon père était comme de la nuisance\ 
+Aucun d'entre nous n'a voulu recoller les morceaux\
+Toute tentative nous montrait qu'on avait vraiment trop d'ego\
+Mon père n'était pas chanteur, il aimait les sales rengaines\
+Surtout celles qui vous tapent comme un grand coup de surin en pleine poitrine\
+Croyant la jouer fine, il ne voulait pas, ne cherchait même pas\
+À ranger ce putain d'orgueil qui tranchait les liens familiaux\
+
 
